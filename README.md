@@ -1,2 +1,6 @@
 # hello-world
-My first post..
+
+Muhammad Bhaska a.k.a krux0
+Android Developer
+
+~Fin
